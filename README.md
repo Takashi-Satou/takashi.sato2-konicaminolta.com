@@ -1,0 +1,1 @@
+# takashi.sato2-konicaminolta.com
